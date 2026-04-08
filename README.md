@@ -1,1 +1,2 @@
 # 4socratesBERNAL
+HOLA A TODOS AMIGOS
